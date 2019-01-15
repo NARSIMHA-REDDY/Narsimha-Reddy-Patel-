@@ -1,1 +1,0 @@
-# Narsimha-Reddy-Patel-
